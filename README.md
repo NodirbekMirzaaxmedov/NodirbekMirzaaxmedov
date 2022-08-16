@@ -2,7 +2,7 @@
  
  
  <br />
- Im learning software development. Now Im just Front - end Developer but thats not all and the future I wanna knows back-end type or something Android ,Ios. So I need work now  if you have somework about Front-end . I think im ready for Front-end now. 
+ Im learning software development. Now Im just Front - end Developer but thats not all and the future I wanna knows back-end type or something Android ,Ios. So I need work now  if you have somework about Front-end . I guees im ready for be intern now. 
  
  <br />
  
